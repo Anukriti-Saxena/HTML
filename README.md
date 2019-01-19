@@ -35,6 +35,8 @@ kashmiri mirch, dhaniya powder, hing, tejpatta, elaichi etc.<br><br>
 ham etc. In addition we have eggs too. <br><br>
 8.<b>Fruits:</b>You will be able to find berries, juicy frits like oranges, tomatoes, melon etc in our store.<br><br>
 </p>
+ <p>
+WE WISH YOU WILL VISIT US SOON!</p>
 </body>
 </html>
 
